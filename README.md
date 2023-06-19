@@ -1,3 +1,5 @@
+This bio was written 2 years ago and not reflect who I am anymore.
+
 # João Pedrozo
 
 [![Linkedin Badge](https://img.shields.io/badge/-João%20Pedrozo-de493e?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/joão-pedrozo/)](https://www.linkedin.com/in/joão-pedrozo/)  [![Gmail Badge](https://img.shields.io/badge/-jp.professional@outlook.com-de493e?style=flat-square&logo=Gmail&logoColor=white&link=mailto:jp.professional@outlook.com)](mailto:jp.professional@outlook.com)
