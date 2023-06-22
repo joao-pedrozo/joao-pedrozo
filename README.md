@@ -1,4 +1,4 @@
-This bio was written 2 years ago and not reflect who I am anymore.
+This bio was written 2 years ago and not reflect who I am anymore :)
 
 # João Pedrozo
 
