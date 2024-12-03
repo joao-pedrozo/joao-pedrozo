@@ -1,3 +1,3 @@
 # Hi there :)
 
-Full-stack (FE Heavy) Developer, UX designer and philosophy enthusiast.
+Front-End Developer, UX designer and Philosophy Enthusiast.
